@@ -1,5 +1,7 @@
 # Index
 
+---
+
 ### [Sweet Dreams](https://ryanxgrace.github.io/Stories/sweet_dreams.html)
 5100 words | mind control
 
