@@ -1,5 +1,7 @@
 # Best Worst Day
 
+(An expanded version of a story originally by Jen)
+
 The security agent handed me my papers, phone, and the zip lock bag. I was finally "free" to go catch my flight, but of course, it had left near a half-hour ago.
 
 *I hate this fucking day.*
