@@ -7,7 +7,9 @@ The security agent handed me my papers, phone, and the zip lock bag. I was final
 I was seriously considering crying, but when I checked my texts I felt a huge relief.
 
 >**Leah** `They won't hold the plane any longer`
+
 >**Leah** `But good news! I found a volunteer with an expense card to stay back and help you get your hotel and tickets sorted out!`
+
 >**Leah** `So sorry this happened to you ☹ I'll make it up to you when you next shift we have together 😇🍰🍷`
 
 *Thank fucking god.*
@@ -66,7 +68,7 @@ You looked so genuine, and it wouldn't surprise me at all if Leah had lied to tr
 
 "Do you babysit often?" I asked, and you smiled.
 
-"Oh, off and on ever since I was fourteen. I don't usually let anyone drink rum though. I might get kicked out of the Baby-Sitters Club for this."
+"Off and on ever since I was fourteen. I don't usually let anyone drink rum though. I might get kicked out of the Baby-Sitters Club for this."
 
 I laughed at that, and it seemed to make us both a little more comfortable. You casually looked around the room, watching people, and it felt good that you weren't pressing me about what happened. 
 
@@ -109,7 +111,9 @@ My phone dinged and I glanced towards you enough to see that you had yours out, 
 >**Ryan** `Are you ok?`
 
 >**Jen** `yes`
+
 >**Jen** `I need this pls`
+
 >**Jen** `even if u can give jsut a lil bit`
 
 "If I ask you a question, are you going to tell me the truth?"
