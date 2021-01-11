@@ -12,7 +12,7 @@ I was seriously considering crying, but when I checked my texts I felt a huge re
 
 >**Leah** `But good news! I found a volunteer with an expense card to stay back and help you get your hotel and tickets sorted out!`
 
->**Leah** `So sorry this happened to you ☹ I'll make it up to you when you next shift we have together 😇🍰🍷`
+>**Leah** `So sorry this happened to you ☹ I'll make it up to you the next shift we have together 😇🍰🍷`
 
 *Thank fucking god.*
 
