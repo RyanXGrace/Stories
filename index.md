@@ -7,6 +7,6 @@
 
 ---
 
-### The Best Worst Day (in progress)
-2600 words | D/s
+### [Best Worst Day](https://ryanxgrace.github.io/Stories/best_worst_day.html)
+4100 words | D/s
 
