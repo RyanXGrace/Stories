@@ -32,7 +32,7 @@ I wanted to write more but I knew she was in the air and I was going to have fiv
 
 *Worst fucking day of my life and she gets the guy I have a crush on to stay and witness it*
 
-I peeked around the column and saw you scanning the area, looking for me. My stomach growled and I knew I had to bite the bullet, so I stuffed my phone back in my pocket and walked towards you. When you spotted me you smiled that way you do, like you're genuinely happy to see me. It made my stomach do flip flops.
+I added your name to my phone, then peeked around the column and saw you scanning the area for me. My stomach growled and I knew I had to bite the bullet, so I stuffed my phone back in my pocket and walked towards you. When you spotted me you smiled that way you do, like you're genuinely happy to see me. It made my stomach do flip flops.
 
 I tried not to look at you as I walked up. I was so embarrassed. And maybe I knew your face would make me feel better and I wanted to stay mad at Leah for just a little while longer.
 
