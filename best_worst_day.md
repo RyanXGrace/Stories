@@ -90,7 +90,7 @@ You laughed anxiously. I slipped off my sandal and slowly moved my foot up along
 
 "Jen." You almost choked on the word. 
 
-I licked my lips, hoping that the intensity I saw growing on your face was also grow elsewhere on your body.
+I licked my lips, hoping that the intensity I saw growing on your face was also growing elsewhere on your body.
 
 "Stop that, Jen!" Your words were so deep and sudden and commanding. I snapped my foot back and covered my mouth with my hands. You hadn't moved, but your muscles had tensed. The nervousness on your face had turned into something hard that I couldn't read.
 
@@ -104,7 +104,7 @@ I tried to sit up straight and folded my hands in my lap. I kept my eyes down an
 
 "What does it mean to you when you say 'Sir' like that?"
 
-My voice trembled as I said, "It's how I, as a Submissive, address my Dominant. I can call you Master if you prefer."
+My voice trembled as I said, "It's how I addressed my Dom. I can call you Master if you prefer."
 
 *Please fucking please be ok with this.*
 
@@ -120,6 +120,8 @@ My phone dinged and I glanced towards you enough to see that you had yours out, 
 
 >**Jen** `even if u can give jsut a lil bit`
 
+We both sat quietly for a while. You didn't take your eyes off me, and I didn't look up from the table. It seemed like a good thing that you hadn't shut me down so far.
+
 "If I ask you a question, are you going to tell me the truth?"
 
 "Yes, Sir."
@@ -128,7 +130,7 @@ My phone dinged and I glanced towards you enough to see that you had yours out, 
 
 "I got ready for the flight early because I wanted to do some work things here at the airport before the flight. I got an uber to come here, but with all the unexpected ice we ended up in a big pileup. I helped another driver who had a four-centimetre unilateral laceration in zone two on the right side of her neck. I was able to hand her off to the paramedics in good condition, and then I gave my statement to the police. But by that time the uber with my carry-on, coat, and wallet had been towed away."
 
-I paused long enough to glance up at you. You were listening so intently, I had to allow myself a small smile. I continued, "They couldn't tell me for sure where it had been towed to. It really was a huge mess. Twelve cars, I think, in total. I got a ride to the police station to get the temporary ID papers so I could make the flight still. I tossed the sweats I was wearing because they were covered in blood, then Leah picked me up and we raced here. She got through security, but they held me back because I made a mistake."
+I paused long enough to glance up at you. You were listening so intently, I had to allow myself a small smile. I continued, "They couldn't tell me for sure where it had been towed to. It really was a huge mess. Twelve cars, I think, in total. I got a ride to the police station to get the temporary ID papers so I could make the flight. I tossed the sweats I was wearing because they were covered in blood, then Leah picked me up and we raced here. She got through security, but they held me back because I made a mistake."
 
 Our food arrived, and you told me to eat first before continuing the story. I'm sure it was obvious how hungry I was. I felt so warm inside that you made it an order, rather than an option.
 
@@ -136,7 +138,7 @@ Our food arrived, and you told me to eat first before continuing the story. I'm 
 
 I finished before you, so I asked, "May I continue, Sir?" You nodded. "At security, they gave me a hard time because of the temporary ID, but what caused me to miss the flight was my own fault. I put everything I had into the bin. Sandals, phone, and papers. But I then set off the detector because I had totally forgotten I was wearing this."
 
-Out of the pocket of my hoodie, I pulled a zip lock bag and put it on the table. The large metal anal plug made a loud thump.
+Out of the pocket of my hoodie, I pulled a zip lock bag and put it on the table. The large titanium anal plug made a loud thump.
 
 I waited to see if you would say anything, but right then the waitress arrived and offered to clear our plates. She stumbled over her words when she saw what was in the bag, but you pulled her attention away by asking for the bill. When she was gone and you turned back to me I was staring at your chest with tears in my eyes. I felt I was about to explode with embarrassment.
 
